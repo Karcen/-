@@ -1,1 +1,1 @@
-![image](https://github.com/user-attachments/assets/be353ac5-fccc-4888-87f7-6efbc770f509)
+![婚礼学报demo](https://github.com/user-attachments/assets/57f24fee-93a2-42c4-ad3c-3f65371d2fbf)
